@@ -9,6 +9,8 @@ it / they pref or she / him
 
 PLEASE w2int , i don't enjoy talking in public chat.
 
+do not copy / take inspo from my ponies unless i say u can !
+
 c+h whenever , ask if in group !
 please don't c+h if it is not in my name.
 
