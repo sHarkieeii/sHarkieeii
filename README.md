@@ -7,7 +7,7 @@ it / they pref or she / him
 <img width="200" height="67" alt="1000014545" src="https://github.com/user-attachments/assets/9569457d-0938-432a-b6a6-817cd2e28c8e" />
 
 
-PLEASE w2i , i don't enjoy talking in public chat.
+PLEASE w2int , i don't enjoy talking in public chat.
 
 c+h whenever , ask if in group !
 please don't c+h if it is not in my name.
