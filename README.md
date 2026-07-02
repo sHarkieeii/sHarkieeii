@@ -1,16 +1,18 @@
-## Hi there 👋
+<img width="160" height="160" alt="1000014542" src="https://github.com/user-attachments/assets/58896929-614e-4a04-a3ce-2cf06eba2592" />
 
-<!--
-**sHarkieeii/sHarkieeii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hallo ! 
 
-Here are some ideas to get you started:
+it / they pref or she / him
+<img width="200" height="67" alt="1000014545" src="https://github.com/user-attachments/assets/9569457d-0938-432a-b6a6-817cd2e28c8e" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+PLEASE w2i , i don't enjoy talking in public chat.
+
+c+h whenever , ask if in group !
+please don't c+h if it is not in my name.
+
+15+ iwc >_>
+
+selective-sharing griefer yumeshipper , doubles are ok to int tho.
+
+<img width="360" height="330" alt="1000014541" src="https://github.com/user-attachments/assets/51d4e95e-1ea0-43e7-b214-8786e9f7b511" />
