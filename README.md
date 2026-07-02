@@ -14,6 +14,10 @@ please don't c+h if it is not in my name.
 
 15+ iwc >_>
 
+usually with friends , and usually mcyt based
+<img width="150" height="20" alt="1000014549" src="https://github.com/user-attachments/assets/2bf5a35e-6854-4b17-a486-819cfc118aed" />
+
+
 selective-sharing griefer yumeshipper , doubles are ok to int tho.
 
 <img width="360" height="330" alt="1000014541" src="https://github.com/user-attachments/assets/51d4e95e-1ea0-43e7-b214-8786e9f7b511" />
