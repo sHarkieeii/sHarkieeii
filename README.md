@@ -7,7 +7,12 @@
 
   [prns](https://pronouns.cc/@sHarkieeii)
 
-<img width="500" height="500" alt="IMG_3218" src="https://github.com/user-attachments/assets/5fce7d05-b4d3-4759-aadf-36e43b89f044" />
+
+<img width="160" height="160" alt="IMG_3224" src="https://github.com/user-attachments/assets/850e34c9-8db4-4377-b74a-92af6245cf6e" />
+
+
+
+
 
 
 
