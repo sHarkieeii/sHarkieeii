@@ -7,4 +7,9 @@
 
   [prns](https://pronouns.cc/@sHarkieeii)
 
-<img width="780" height="750" alt="1000014541" src="https://github.com/user-attachments/assets/51d4e95e-1ea0-43e7-b214-8786e9f7b511" />
+<img width="500" height="500" alt="IMG_3218" src="https://github.com/user-attachments/assets/5fce7d05-b4d3-4759-aadf-36e43b89f044" />
+
+
+
+
+
