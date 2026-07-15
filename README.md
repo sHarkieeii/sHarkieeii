@@ -1,3 +1,8 @@
+<img width="1000" height="250" alt="3cc53cb11122fd3dc25fdc6f3e8a995d" src="https://github.com/user-attachments/assets/c5644562-fec3-47da-ac6c-d5137ac36428" />
+<div align="center">
+  
+.☘︎ ݁˖
+
 <div align="center">
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-vistors-badge&label=Y0U'R3%200URS!&labelColor=%237ca647&countColor=%23d1d45a&style=flat-square&labelStyle=upper)
