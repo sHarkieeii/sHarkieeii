@@ -1,7 +1,7 @@
 <img width="1000" height="250" alt="3cc53cb11122fd3dc25fdc6f3e8a995d" src="https://github.com/user-attachments/assets/c5644562-fec3-47da-ac6c-d5137ac36428" />
 <div align="center">
   
-.☘︎ ݁˖
+$${\color{green}WE'RE\ B3TT3R\ TH4N\ Y0U'LL\ EV3R\ B3!!\ }$$
 
 <div align="center">
 
