@@ -1,6 +1,6 @@
 <div align="center">
 
-  [![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-visitors-badge&label=Y0U'R3%200URS&labelColor=%2337d67a&countColor=%23f47373&style=plastic&labelStyle=upper)](https://visitorbadge.io/status?path=sHarkieeii%2Fgithub-visitors-badge)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-vistors-badge&label=Y0U'R3%200URS!&labelColor=%237ca647&countColor=%23d1d45a&style=flat-square&labelStyle=upper)
 
 
 <div align="center">
