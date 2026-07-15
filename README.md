@@ -1,6 +1,8 @@
 <img width="1000" height="250" alt="3cc53cb11122fd3dc25fdc6f3e8a995d" src="https://github.com/user-attachments/assets/c5644562-fec3-47da-ac6c-d5137ac36428" />
+
+---
 <div align="center">
-  
+
 $${\color{green}WE'RE\ B3TT3R\ TH4N\ Y0U'LL\ EV3R\ B3!!\ }$$
 
 <div align="center">
@@ -15,11 +17,8 @@ $${\color{green}WE'RE\ B3TT3R\ TH4N\ Y0U'LL\ EV3R\ B3!!\ }$$
 
 <img width="260" height="260" alt="IMG_3224" src="https://github.com/user-attachments/assets/850e34c9-8db4-4377-b74a-92af6245cf6e" />
 
+---
 
-
-
-
-
-
-
-
+<div align="center">
+  
+  $${\color{green}15+\ iwcuf\ 18+\ iwecuf\ }$$
