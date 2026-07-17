@@ -1,4 +1,8 @@
-<img width="1000" height="250" alt="3cc53cb11122fd3dc25fdc6f3e8a995d" src="https://github.com/user-attachments/assets/c5644562-fec3-47da-ac6c-d5137ac36428" />
+<div align="center">
+
+  $\color{yellow} what \ about \ us \ ? \ $
+  
+<img width="1917" height="423" alt="Screenshot 2026-07-17 135005" src="https://github.com/user-attachments/assets/1eea5040-792e-4248-a956-c8516398658e" />
 
 ---
 <div align="center">
