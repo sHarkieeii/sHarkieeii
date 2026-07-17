@@ -1,6 +1,7 @@
 <div align="center">
 
-  $\color{yellow} what \ about \ us \ ? \ $
+  $\color{yellow} what \ about \ us \ ? \ $ 
+  [Ze](https://github.com/ZETHETACO)
   
 <img width="1917" height="423" alt="Screenshot 2026-07-17 135005" src="https://github.com/user-attachments/assets/1eea5040-792e-4248-a956-c8516398658e" />
 
