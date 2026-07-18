@@ -27,3 +27,4 @@ $${\color{green}WE'RE\ B3TT3R\ TH4N\ Y0U'LL\ EV3R\ B3!!\ }$$
 <div align="center">
   
   $${\color{green}15+\ iwcuf\ 18+\ iwecuf\ }$$
+  $${\color{green}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !}$$
