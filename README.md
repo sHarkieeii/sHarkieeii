@@ -26,7 +26,7 @@ ${\color{green}griefer\ yumeshipper\ -\ doubles\ are\ ok\ to\ interact\ ! }$
 
   [<img width="200" height="50" alt="PRNS IMAGE THING GIT" src="https://github.com/user-attachments/assets/3afe3826-27d9-4b04-99b3-1047ffcd606a" />](https://pronouns.cc/@sHarkieeii)  [<img width="200" height="50" alt="STRAW IMAGE THING GIT" src="https://github.com/user-attachments/assets/ee3a773a-5679-41cb-b1e3-f69ea3a122af" />](https://sharkieeii.straw.page) [<img width="200" height="50" alt="ATA IMAGE THING GIT" src="https://github.com/user-attachments/assets/f074c281-244d-4d0e-9011-b64098783095" />](https://sharkieeii.atabook.org/)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=7cd115&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=false&background_color=00ffff&interchange=false&profanity=false&hide_remaster=false&bar_color=00ffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <img width="258" height="258" alt="andrew2002-collinlock16" src="https://github.com/user-attachments/assets/76494ae2-c8db-459e-8751-a7e70a2e37e5" />
 
 
