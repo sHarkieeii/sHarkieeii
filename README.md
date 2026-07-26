@@ -3,6 +3,8 @@ $${\color{teal}andreW2002\ stream\ highlights\ >⩊<}$$
 
 <div align="center">
 
+  $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ identify}$$
+
 <img width="550" height="550" alt="Untitled34_20260726231806" src="https://github.com/user-attachments/assets/4810fc62-765e-4751-821f-36bef4e25512" />
 
 ---
@@ -34,7 +36,7 @@ $${\color{teal}andreW2002\ stream\ highlights\ >⩊<}$$
 
 ---
 
-  ⊹ ࣪ ˖ 
-  $${\color{teal}15+\ iwcuf\ 18+\ iwecuf\ }$$
-  $${\color{teal}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !}$$
-   ࣪ ˖ ໒꒱
+   
+  $${\color{teal}⊹ ࣪ ˖\ 15+\ iwcuf\ 18+\ iwecuf\ }$$
+  $${\color{teal}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !\  ࣪ ˖ ໒꒱}$$
+  
