@@ -10,7 +10,7 @@
 
 <div align="center">
 
-$${\color{cyan}wip\ }$$
+$${\color{teal}wip\ }$$
 
 <div align="center">
 
@@ -30,5 +30,5 @@ $${\color{cyan}wip\ }$$
 
 <div align="center">
   
-  $${\color{cyan}15+\ iwcuf\ 18+\ iwecuf\ }$$
-  $${\color{cyan}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !}$$
+  $${\color{teal}15+\ iwcuf\ 18+\ iwecuf\ }$$
+  $${\color{teal}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !}$$
