@@ -28,8 +28,6 @@ $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ id
 
   
   <div align="right">
-    <img width="200" height="200" alt="r7mfkqgd6eo_PET_PET" src="https://github.com/user-attachments/assets/612ab414-bd5a-4756-b44d-9ecf5363dff5" />  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀
-
   <img width="400" height="800" alt="Untitled39_20260806214916" src="https://github.com/user-attachments/assets/252ab116-3811-4781-89a9-cc9dce2f6102" />
 
 
