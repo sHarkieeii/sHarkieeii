@@ -1,12 +1,12 @@
 
-$${\color{teal}andreW2002\ stream\ highlights\ >⩊<}$$
+$${\color{red}  ⌗  dyso\ number\ one\ fan\ >⩊<}$$
 $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ identify}$$
 
 <div align="center">
 
   
 
-<img width="550" height="550" alt="Untitled34_20260726231806" src="https://github.com/user-attachments/assets/4810fc62-765e-4751-821f-36bef4e25512" />
+<img width="500" height="700" alt="DYSO 1" src="https://github.com/user-attachments/assets/20074f0b-6e86-4f2a-bb49-169b252d6d74" />
 
 ---
   
@@ -17,16 +17,20 @@ $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ id
   <img width="350" height="152" alt="Screenshot 2026-07-26 220411" src="https://github.com/user-attachments/assets/a5ae5594-e7a1-4937-a74b-1c2615918f17" />
 
   
-  [<img width="128" height="47" alt="PRNS IMAGE THING GIT" src="https://github.com/user-attachments/assets/923cec11-453f-490e-a735-718adecf1d4c" />
-](https://pronouns.cc/@sHarkieeii)  ⠀⠀⠀[<img width="128" height="47" alt="STRAW IMAGE THING GIT" src="https://github.com/user-attachments/assets/61b6a8f0-af27-4d17-9ad1-fdede1c706c5" />
-](https://sharkieeii.straw.page)⠀⠀⠀ [<img width="82" height="47" alt="ATA IMAGE THING GIT" src="https://github.com/user-attachments/assets/94ea66be-0ee7-4f24-81d4-4fbe22adb11e" />
+  [<img width="200" height="50" alt="PRNS IMAGE THING GIT" src="https://github.com/user-attachments/assets/7eade69d-03de-43d8-a882-fb647450f978" />
+](https://pronouns.cc/@sHarkieeii)  ⠀⠀⠀[<img width="144" height="50" alt="ATA IMAGE THING GIT" src="https://github.com/user-attachments/assets/aa158871-701e-4696-ab40-9e93c1fa985d" />
 ](https://sharkieeii.atabook.org/)
+  ⠀⠀⠀[<img width="200" height="50" alt="STRAW IMAGE THING GIT" src="https://github.com/user-attachments/assets/db1362c2-e6e4-4ead-a8db-24e0f4099aed" />
+](https://sharkieeii.straw.page)⠀⠀⠀ 
+
   
 
 
   
   <div align="right">
-  <img width="560" height="560" alt="andre frog blink github thing 2" src="https://github.com/user-attachments/assets/a611a04c-0e4c-40b2-8e31-0e72a222ba40" />
+    <img width="200" height="200" alt="r7mfkqgd6eo_PET_PET" src="https://github.com/user-attachments/assets/612ab414-bd5a-4756-b44d-9ecf5363dff5" />  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀
+
+  <img width="400" height="800" alt="Untitled39_20260806214916" src="https://github.com/user-attachments/assets/252ab116-3811-4781-89a9-cc9dce2f6102" />
 
 
 
@@ -41,5 +45,5 @@ $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ id
   
   $${\color{teal}⊹ ࣪ ˖\ 15+\ iwcuf\ 18+\ iwecuf\ }$$
   
-  $${\color{teal}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !\  ࣪ ˖ ໒꒱}$$
+  $${\color{red}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !\  ࣪ ˖ ໒꒱}$$
   
