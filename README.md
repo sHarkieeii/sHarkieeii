@@ -41,7 +41,7 @@ $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ id
 
 <div align="left">
   
-  $${\color{teal}⊹ ࣪ ˖\ 15+\ iwcuf\ 18+\ iwecuf\ }$$
+  $${\color{teal}⊹ ࣪ ˖\ 15+\ iwcuf\ 18+\ iwec\ }$$
   
   $${\color{red}w2i\ ALWAYS\ and\ c+h\ unless\ said\ so\ !\  ࣪ ˖ ໒꒱}$$
   
