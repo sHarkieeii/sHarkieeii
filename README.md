@@ -21,7 +21,7 @@ $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ id
 ](https://pronouns.cc/@sHarkieeii)  ⠀⠀⠀[<img width="144" height="50" alt="ATA IMAGE THING GIT" src="https://github.com/user-attachments/assets/aa158871-701e-4696-ab40-9e93c1fa985d" />
 ](https://sharkieeii.atabook.org/)
   ⠀⠀⠀[<img width="200" height="50" alt="STRAW IMAGE THING GIT" src="https://github.com/user-attachments/assets/db1362c2-e6e4-4ead-a8db-24e0f4099aed" />
-](https://sharkieeii.straw.page)⠀⠀⠀ 
+]((https://ix1jx1.straw.page))⠀⠀⠀ 
 
   
 
