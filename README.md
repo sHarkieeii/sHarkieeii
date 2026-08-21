@@ -1,5 +1,5 @@
 
-$${\color{red}read\ prns.cc\ byi\ >⩊<}$$
+$${\color{red}read\ prns.cc\ byi}$$
 $${\color{teal}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ identify}$$
 
 <div align="center">
