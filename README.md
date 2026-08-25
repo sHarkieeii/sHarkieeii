@@ -10,7 +10,7 @@ $${\color{hotpink}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\
 
 ---
   
-  ![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-vistors-badge&label=%E1%AF%93%E2%98%85&labelColor=%2327595b&countColor=%23bd595b)
+  ![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-visitors-badge&label=little%20apples&labelColor=%23f990b8&countColor=%23f990b8)
 
 <div align="left">
 
