@@ -34,7 +34,7 @@ $${\color{hotpink}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\
 
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=false&background_color=f31295&interchange=true&profanity=false&hide_remaster=false&bar_color=fe9fd6&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f7a1f1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 ---
