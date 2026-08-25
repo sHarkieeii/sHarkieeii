@@ -1,6 +1,7 @@
 
 $${\color{hotpink}read\ prns.cc\ byi}$$
 $${\color{hotpink}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ identify}$$
+$${\color{hotpink}andrew2002\ fictionkin\}$$
 
 <div align="center">
 
@@ -8,7 +9,9 @@ $${\color{hotpink}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\
 
 <img width="350" height="350" alt="Untitled151_20260825165247" src="https://github.com/user-attachments/assets/9ba512d3-d973-4731-b02b-b7a46fb81988" />
 
----
+
+<img width="800" height="150" alt="Untitled156_20260825224533" src="https://github.com/user-attachments/assets/bcb4a691-1d1b-4fd7-b0e2-52f22a7b6fc6" />
+
   
   ![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-visitors-badge&label=little%20apples&labelColor=%23f990b8&countColor=%23f990b8)
 
@@ -26,6 +29,7 @@ $${\color{hotpink}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\
   
 
 
+
   
   <div align="right">
   <img width="450" height="650" alt="Untitled153_20260825165524" src="https://github.com/user-attachments/assets/af97a5c2-30bd-44f2-ab3d-4ddca9e59be3" />
@@ -37,7 +41,8 @@ $${\color{hotpink}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f7a1f1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
----
+<img width="800" height="150" alt="Untitled156_20260825224533" src="https://github.com/user-attachments/assets/5a4bdcc6-c85c-4f38-a283-d76ec0374f0e" />
+
 
 <div align="left">
   
