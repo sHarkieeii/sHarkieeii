@@ -46,7 +46,7 @@ $${\color{hotpink}andrew2002\ fictionkin\}$$
 
 <div align="left">
   
-  $${\color{hotpink}⊹ ࣪ ˖\ 15+\ iwcuf\ 18+\ iwec\ }$$
+  $${\color{hotpink}15+\ iwcuf\ 18+\ iwec\ }$$
   
-  $${\color{hotpink}w2iuf\ and\ c+h\ unless\ said\ so\ !\  ࣪ ˖ ໒꒱}$$
+  $${\color{hotpink}w2iuf\ and\ c+h\ unless\ said\ so\ !}$$
   
