@@ -11,11 +11,10 @@
 ___
 
 
-<div align="right">
 
 
 
-  <img width="459" height="25" alt="Untitled166_20260914005826" src="https://github.com/user-attachments/assets/b33ed5c9-61e6-4838-a683-a957fbbcb5b6" />
+  <img align="right" img width="459" height="25" alt="Untitled166_20260914005826" src="https://github.com/user-attachments/assets/b33ed5c9-61e6-4838-a683-a957fbbcb5b6" />
 
 <img align="left" img width="340" height="580" alt="Untitled162_20260914000121" src="https://github.com/user-attachments/assets/9dc8742c-1d01-4fb5-a73d-62d5f76a0d19" />
 
@@ -42,3 +41,7 @@ ___
 
 
 ___
+
+<div align="none">
+
+  $${\color{red}  we\ don’t\ support\ simon\ (grace dev)}$$
