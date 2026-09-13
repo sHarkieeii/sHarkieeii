@@ -1,52 +1,45 @@
-
-$${\color{hotpink}read\ prns.cc\ byi}$$
-$${\color{hotpink}we\ refer\ to\ ourselves\ as\ plural\ -\ related\ to\ how\ we\ identify}$$
-$${\color{hotpink}andrew2002\ fictionkin\}$$
-
-<div align="center">
-
-  
-
-<img width="350" height="350" alt="Untitled151_20260825165247" src="https://github.com/user-attachments/assets/9ba512d3-d973-4731-b02b-b7a46fb81988" />
-
-
-<img width="800" height="150" alt="Untitled156_20260825224533" src="https://github.com/user-attachments/assets/bcb4a691-1d1b-4fd7-b0e2-52f22a7b6fc6" />
-
-  
-  ![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-visitors-badge&label=little%20apples&labelColor=%23f990b8&countColor=%23f990b8)
-
-<div align="left">
-
-  <img width="350" height="152" alt="Screenshot 2026-07-26 220411" src="https://github.com/user-attachments/assets/a5ae5594-e7a1-4937-a74b-1c2615918f17" />
-
-  
-  [<img width="350" height="50" alt="Untitled154_20260825170316" src="https://github.com/user-attachments/assets/f2278b28-5f5d-4e44-8180-0e5ebfa5758f" />
-](https://pronouns.cc/@sHarkieeii)  ⠀⠀⠀[<img width="350" height="50" alt="Untitled154_20260825170523" src="https://github.com/user-attachments/assets/d6e17800-ce31-4df0-8d51-2037d4a7ed6c" />
-](https://sharkieeii.atabook.org/)
-  ⠀⠀⠀[<img width="350" height="50" alt="Untitled154_20260825170451" src="https://github.com/user-attachments/assets/756efee0-8243-4f1f-b6c2-9459155660b9" />
-](https://ix1dx1.straw.page)⠀⠀⠀ 
-
-  
-
-
-
-  
-  <div align="right">
-  <img width="450" height="650" alt="Untitled153_20260825165524" src="https://github.com/user-attachments/assets/af97a5c2-30bd-44f2-ab3d-4ddca9e59be3" />
+<img width="2624" height="184" alt="Untitled165_20260914005519" src="https://github.com/user-attachments/assets/bbfb6659-be98-4a65-836c-b439b3cf437c" />
 
 
 
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f7a1f1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+  ![Visitors](https://api.visitorbadge.io/api/visitors?path=sHarkieeii%2Fgithub-visitors-badge&label=sinners&labelColor=%23546972&countColor=%23f98292&style=flat-square&labelStyle=lower)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Space+Grotesk&pause=1000&color=3E697EE9&center=true&width=435&lines=spread+the+love)](https://git.io/typing-svg)
+
+___
 
 
-<img width="800" height="150" alt="Untitled156_20260825224533" src="https://github.com/user-attachments/assets/5a4bdcc6-c85c-4f38-a283-d76ec0374f0e" />
+<div align="right">
 
 
-<div align="left">
+
+  <img width="459" height="25" alt="Untitled166_20260914005826" src="https://github.com/user-attachments/assets/b33ed5c9-61e6-4838-a683-a957fbbcb5b6" />
+
+<img align="left" img width="340" height="580" alt="Untitled162_20260914000121" src="https://github.com/user-attachments/assets/9dc8742c-1d01-4fb5-a73d-62d5f76a0d19" />
+
+<div align="center"
+
+ <img align="right" img width="253" height="122" alt="IMG_3408" src="https://github.com/user-attachments/assets/82372d99-7c4a-4891-8781-8cec3b559e53" />
+
+ [<img align="right" img width="400" height="100" alt="Untitled164_20260914000846" src="https://github.com/user-attachments/assets/7a89606f-78f7-475c-b2e9-490d10a77fb1" />](https://pronouns.cc/@sHarkieeii)
+
+ [<img align="right" img width="400" height="100" alt="Untitled164_20260914000941" src="https://github.com/user-attachments/assets/88192525-a882-4f85-8104-7e1f6d59cef0" />](https://sharkieeii.atabook.org)
+
+ [<img align="right" img width="400" height="100" alt="Untitled164_20260914001005" src="https://github.com/user-attachments/assets/06c99ed2-b13e-4712-9eb0-238c7e615a62" />](https://ix1dx1.straw.page)
+
+
+
+
+ 
+
   
-  $${\color{hotpink}15+\ iwcuf\ 18+\ iwec\ }$$
+
   
-  $${\color{hotpink}w2iuf\ and\ c+h\ unless\ said\ so\ !}$$
-  
+<img align="center" img width="200" height="200" alt="Untitled161_20260914014355" src="https://github.com/user-attachments/assets/8e0d8d67-32bd-48bd-ba1b-a8d7d764fd11" />
+
+
+
+
+___
