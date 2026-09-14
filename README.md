@@ -1,3 +1,5 @@
+$${\color{red}we\ dont\ support\ simon\ (grace\ dev)}$$
+
 <div align="center">
 
 <img width="190" height="250" alt="Untitled169_20260914232840" src="https://github.com/user-attachments/assets/cc46b10a-595e-4f4d-b979-50dbdd367e5b" />
@@ -8,7 +10,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Space+Grotesk&pause=1000&color=3E697EE9&center=true&width=435&lines=spread+the+love)](https://git.io/typing-svg)
 
 
-$${\color{red}we\ dont\ support\ simon\ (grace dev)}$$
+___
 
 
 <img align="left" img width="300" height="500" alt="Untitled168_20260914232610" src="https://github.com/user-attachments/assets/cedfd225-fdd8-4ab7-8aba-8ad82a38b239" />
