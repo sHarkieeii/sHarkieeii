@@ -19,12 +19,10 @@ ___
 
 <div align="right">
   
-  [<img width="400" height="100" alt="Untitled170_20260921004610" src="https://github.com/user-attachments/assets/f3eb4abf-c87d-44ad-9e3a-f9c497a0dbd4" />
+ [<img width="400" height="100" alt="Untitled170_20260921004610" src="https://github.com/user-attachments/assets/f3eb4abf-c87d-44ad-9e3a-f9c497a0dbd4" />
 ](https://pronouns.cc/@sHarkieeii)
-
  [<img width="400" height="100" alt="Untitled170_20260921004620" src="https://github.com/user-attachments/assets/794df84b-a226-492f-bdbd-81fcc07462b2" />
 ](https://sharkieeii.atabook.org)
-
  [<img width="400" height="100" alt="Untitled170_20260921004555" src="https://github.com/user-attachments/assets/081c3dab-ca84-44db-999e-56fa0823b3ff" />
 ](https://ix1dx1.straw.page)
 
