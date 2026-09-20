@@ -14,7 +14,7 @@ $${\color{yellow}we\ dont\ support\ simon\ (grace\ dev)}$$
 ___
 
 
-<img align="left" img width="350" height="550" alt="Untitled174_20260921003802" src="https://github.com/user-attachments/assets/ac8c395a-31b4-40f8-b43d-de97b5f5a887" />
+<img align="left" img width="330" height="550" alt="Untitled174_20260921003802" src="https://github.com/user-attachments/assets/ac8c395a-31b4-40f8-b43d-de97b5f5a887" />
 
 
 <div align="right">
