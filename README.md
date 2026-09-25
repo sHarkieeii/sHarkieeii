@@ -32,7 +32,8 @@ ___
 <div align="right">
   
   <details>
-  <summary>nya</summary>
+  
+<summary> <small>$${\color{yellow}click 4 info}$$</small> </summary>
 
   we go by it / its ONLY.
  
@@ -47,7 +48,7 @@ ___
 
 
 <details>
-<summary>oomfs</summary>
+<summary> <small>$${\color{yellow}oomfs}$$</small> </summary>
 
 traffle . [ze / mane](https://github.com/ZETHETACO) . [suo](https://github.com/demisedscholar) . [foxx](https://github.com/nufulii) . [uzi / marceline](https://github.com/Scr1bblez)
   
