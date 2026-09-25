@@ -28,12 +28,14 @@ ___
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=734d00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+</div align="right">
 
-<div align="right">
+
+
   
   <details>
   
-<summary> <small>$${\color{yellow}click 4 info}$$</small> </summary>
+<summary> <sub>info</sub> </summary>
 
   we go by it / its ONLY.
  
@@ -48,7 +50,7 @@ ___
 
 
 <details>
-<summary> <small>$${\color{yellow}oomfs}$$</small> </summary>
+<summary> <sub>oomfs</sub> </summary>
 
 traffle . [ze / mane](https://github.com/ZETHETACO) . [suo](https://github.com/demisedscholar) . [foxx](https://github.com/nufulii) . [uzi / marceline](https://github.com/Scr1bblez)
   
