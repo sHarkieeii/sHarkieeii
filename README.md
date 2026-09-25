@@ -27,3 +27,29 @@ ___
 ](https://ix1dx1.straw.page)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=734d00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+<div align="right">
+  
+  <details>
+  <summary>nya</summary>
+
+  we go by it / its ONLY.
+ 
+  NOT a sys, we use plural to refer to ourselves because we feel most comfortable doing so - block us if this bothers you
+ 
+  u CAN interact, but we refer people not interacting unless we do, or you’re a friend ( crowning / compliments are ok tho!! )
+
+  andrew2002, john grace, and john zen fictionkin C:
+
+
+</details>
+
+
+<details>
+<summary>oomfs</summary>
+
+traffle . [ze / mane](https://github.com/ZETHETACO) . [suo](https://github.com/demisedscholar) . [foxx](https://github.com/nufulii) . [uzi / marceline](https://github.com/Scr1bblez)
+  
+
+</details>
