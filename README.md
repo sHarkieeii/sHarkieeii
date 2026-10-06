@@ -6,7 +6,14 @@
   
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ce6c46&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-  [prns](https://pronouns.cc/@sweetful) $${\color{orange}.}$$ [ata](https://moeful.atabook.org) $${\color{orange}.}$$ [straw](https://ix1dx1.straw.page)
+$${\color{orange}.}$$  [<img width="200" height="50" alt="Untitled170_20261007073523" src="https://github.com/user-attachments/assets/c595de80-b91a-460c-a9c9-d664932f8d3f" />
+](https://pronouns.cc/@sweetful) $${\color{orange}.}$$ 
+[<img width="200" height="50" alt="Untitled170_20261007073554" src="https://github.com/user-attachments/assets/46afc4b5-3289-4174-9b69-fcfffd6c13d7" />
+](https://moeful.atabook.org) $${\color{orange}.}$$ 
+[<img width="200" height="50" alt="Untitled170_20261007073611" src="https://github.com/user-attachments/assets/fa9234a9-2c48-4101-96ed-802d9a5442b3" />
+](https://ix1dx1.straw.page) $${\color{orange}.}$$
+
+
 
    <details>
   
@@ -20,12 +27,12 @@
 
   $${\color{orange}andrew2002,\ john\ grace,\ john\ zen,\ and\ regect\ fictionkin\ C:}$$
 
-
+  
 </details>
 
 <details>
 <summary> <sub>$${\color{orange}moots}$$</sub> </summary>
-
+  
 $${\color{orange}traffle\ .\}$$[ze / mane](https://github.com/ZETHETACO)$${\color{orange}\ .\}$$[suo](https://github.com/demisedscholar)$${\color{orange}\ .\}$$[foxx](https://github.com/nufulii)$${\color{orange}\ .\}$$[uzi / marceline](https://github.com/Scr1bblez)
   
 
