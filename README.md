@@ -25,7 +25,7 @@
 
 
 <details>
-<summary> <sub>$${\color{orange}info}$$</sub> </summary>
+<summary> <sub>$${\color{orange}moots}$$</sub> </summary>
 
 traffle . [ze / mane](https://github.com/ZETHETACO) . [suo](https://github.com/demisedscholar) . [foxx](https://github.com/nufulii) . [uzi / marceline](https://github.com/Scr1bblez)
   
